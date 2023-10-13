@@ -12,6 +12,8 @@ Blue Mountain Peak is the highest mountain in Jamaica and one of the highest pea
 
 ## A little history
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zBmcrv-Qj94?si=oIdl6ikgXzi5-5lz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 The Blue Mountains are considered by many to be a hiker's and camper's paradise. The traditional Blue Mountain trek is a 7-mile hike to the peak and consists of a 3,000-foot increase in elevation. Jamaicans prefer to reach the peak at sunrise, thus the 3–4 hour hike is usually undertaken in darkness. Since the sky is usually very clear in the mornings, Cuba can be seen in the distance.
 
 >Some of the plants found on the Blue Mountain cannot be found anywhere else in the world and they are often of a dwarfed sort.
